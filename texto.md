@@ -1,1 +1,1 @@
-era uma vez um gato chmado tom
+era uma vez um gato chmado tom.
