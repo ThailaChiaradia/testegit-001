@@ -1,1 +1,0 @@
-era uma vez um gato chmado tom.
