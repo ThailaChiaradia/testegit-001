@@ -1,1 +1,1 @@
-Era uma vez um gato chamado Gato de Botas. O amigo dele é o Jerry.
+era uma vez um gato chamado tom.
